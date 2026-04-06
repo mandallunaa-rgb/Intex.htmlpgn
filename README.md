@@ -1,0 +1,2 @@
+# Intex.htmlpgn
+Earning model 
